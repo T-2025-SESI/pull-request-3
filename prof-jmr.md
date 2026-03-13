@@ -1,0 +1,1 @@
+José Mateus Ramiris, o Palmeiras perdeu ontem, o pior, para o Vasco. 
